@@ -1,1 +1,3 @@
-# pista.ink.io
+# pista.ink
+
+good good study, day day up!
